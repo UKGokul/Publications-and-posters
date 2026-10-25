@@ -1,1 +1,1 @@
-this repo contains the example of my writing skills. 
+Reports and a thesis, as examples of my scientific writing.

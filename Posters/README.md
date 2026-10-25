@@ -1,1 +1,1 @@
-These are different posters i presented at different stages
+Posters presented at different stages of my work.
